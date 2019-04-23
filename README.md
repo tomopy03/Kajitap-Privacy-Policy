@@ -1,2 +1,1 @@
-# Kajitap-Privacy-Policy
-Kajitapのプライバシーポリシー＾です
+Kajitapのプライバシーポリシーです
